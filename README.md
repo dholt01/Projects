@@ -7,4 +7,4 @@ please refer to my website: https://dholt2132.wixsite.com/mycv
 
 Thank you,
 
-Daniel
+Daniel Holt
